@@ -24,3 +24,7 @@ When my boss asked me who is the stupid one, me or him? I told him everyone know
 
 There are three types of people in the world.
 Those who can count and those who can't.
+
+She wanted a puppy. But I didn't want a puppy. So we compromised and got a puppy.
+
+Letting the cat out of the bag is a whole lot easier than putting it back in.
