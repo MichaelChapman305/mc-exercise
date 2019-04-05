@@ -14,13 +14,13 @@ The elephant replies "I do it to forget."
 
 
 
-What did the fish say when it ran into a wall?
-
-Dam.
-
 Maybe if we start telling people the brain is an app they will start using it.
 
 When my boss asked me who is the stupid one, me or him? I told him everyone knows he doesn't hire stupid people.
 
 There are three types of people in the world.
 Those who can count and those who can't.
+
+Knock Knock
+
+
