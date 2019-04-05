@@ -87,3 +87,7 @@ When my boss asked me who is the stupid one, me or him? I told him everyone know
 
 There are three types of people in the world.
 Those who can count and those who can't.
+
+
+The first picture of a Black Hole will be revealed next week, what do you think it will look like?
+
