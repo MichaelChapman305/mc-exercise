@@ -16,3 +16,7 @@ The elephant replies "I do it to forget."
 
 "How do you make a Kleenex dance? Put a little boogie in it!"
 
+What did the fish say when it ran into a wall?
+
+Dam.
+
