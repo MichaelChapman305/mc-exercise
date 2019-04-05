@@ -37,15 +37,6 @@ The elephant replies "I do it to forget."
 
 
 
-Maybe if we start telling people the brain is an app they will start using it.
-
-When my boss asked me who is the stupid one, me or him? I told him everyone knows he doesn't hire stupid people.
-
-There are three types of people in the world.
-Those who can count and those who can't.
-
-
-Where is the worst place to play hide and seek in a hospital ? In the I.C.U.
 
 
 
@@ -58,17 +49,6 @@ Where is the worst place to play hide and seek in a hospital ? In the I.C.U.
 
 
 
-
-
-
-
-
-
-
-
-"You again" says the bar man "Why do you drink so much?"
-There
-The elephant replies "I do it to forget."
 
 "A ham sandwich walks into a bar and orders a beer. Bartender says, 'Sorry we don't serve food here.'"
 
