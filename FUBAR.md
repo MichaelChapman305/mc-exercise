@@ -45,7 +45,7 @@ There are three types of people in the world.
 Those who can count and those who can't.
 
 
-
+Where is the worst place to play hide and seek in a hospital ? In the I.C.U.
 
 
 
