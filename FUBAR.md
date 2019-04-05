@@ -1,8 +1,6 @@
-This is what Bob & Carol did on Bob's Computer when working on the first feature. 
+This is what Bob and Carol did on Carol's Computer
 
-I hope when I inevitably choke to death on gummy bears people just say I was killed by bears and leave it at that.
+"What time did the man go to the dentist? Tooth hurt-y."
 
-Q: Knock, knock----Who's there?----Leaf----Leaf who?
-A: Leaf me alone!
-
+"A ham sandwich walks into a bar and orders a beer. Bartender says, 'Sorry we don't serve food here.'"
 
