@@ -22,3 +22,7 @@ Dam.
 Maybe if we start telling people the brain is an app they will start using it.
 
 When my boss asked me who is the stupid one, me or him? I told him everyone knows he doesn't hire stupid people.
+
+My girlfriend is always stealing my t-shirts and sweaters... But if I take one of her dresses, suddenly "we need to talk".
+
+She wanted a puppy. But I didn't want a puppy. So we compromised and got a puppy.
